@@ -7,6 +7,10 @@ https://github.com/user-attachments/assets/a46a4afb-c99c-4ca5-9c7e-04c61c3b30dc
 
 
 
+
+
+
+
 Here is a newer demonstration of FTSynth singing the start of DELTARUNE Chapter 5's "Flower Man" song.
 https://github.com/user-attachments/assets/f5425364-58e6-4362-92af-a83f758f92d4
 
